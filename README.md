@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Karl.
+- 👀 I’m interested in films.
+- 🌱 I’m currently learning torrenting.
+- 💞️ I’m looking to collaborate on sharing films.
+- 📫 How to reach me: https://www.youtube.com/user/MrErtunc/videos
